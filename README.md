@@ -4,6 +4,7 @@ a SuperDirt sample pack
 
 made from a recording of Tio Chato's old piano
 in Abuelitos den
+aqui hay un foto (tiochatopiano.jpg)
 
 
 
